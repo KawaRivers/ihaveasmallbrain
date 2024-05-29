@@ -1,4 +1,4 @@
-quirked up white boy retarded software dev student
+Aye you know how I do it
 
 My name is Maxx, im from the netherlands and i study at kw1c in 'S-hertogenbosch
 
